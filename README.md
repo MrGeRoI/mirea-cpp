@@ -1,1 +1,1 @@
-# [Мы переехали](MrGeRoI/mirea-cpp)
+# [Мы переехали :>](https://github.com/MrGeRoI/mirea-progs)
